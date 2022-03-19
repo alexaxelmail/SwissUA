@@ -67,6 +67,16 @@ SEEP🇨🇭: допомога українцям 🇺🇦
 
 [Чат Женеви](https://t.me/GeneveUkraine)
 
+[Чат Базель](https://t.me/BaselUkraine)
+
+[Чат Тургау](https://t.me/ThurgauUkraine)
+
+[Чат кантону Тічіно](https://t.me/TicinoLuganoUkraine)
+
+[Чат Санкт-Галлен](https://t.me/StGallenUkraine)
+
+[Чат кантону Вале](https://t.me/ValaisUkraine)
+
 [Чат Ааргау](https://t.me/AargauUkraine)
 
 [Женева і Во](https://t.me/chatsuisse)
@@ -78,6 +88,8 @@ SEEP🇨🇭: допомога українцям 🇺🇦
 [Фрібур](https://t.me/+h5QVWdAJof5jY2My)
 
 [Лозана](https://t.me/LousanneUkraine)
+
+[Люцерн](https://t.me/LuzernUkraine)
 
 ### Facebook:
 
